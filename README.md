@@ -4,3 +4,4 @@ One of the concern people face regarding hair is now a thriving business in heal
 
 *A smart comb will help you to take care of your hairs and alert you about dandruff, hair density, hair falls, scalp health.* Data collected by this smart comb is useful to detect local hair health trends, effects of hair products, individual's combing patterns and various hair related concerns.
 
+[Google Drive Link](https://drive.google.com/open?id=0B_72AoiF6J5TVm1sdmJNQkRjTXV0WmVpcHNtRDRxRzhSenJN)
